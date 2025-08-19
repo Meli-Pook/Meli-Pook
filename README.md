@@ -5,7 +5,6 @@ Thanks for checking out my GitHub^^
 - 🌸 I'm in my 2nd year in college!
 - 💮 I mostly use HTML and CSS (at the moment ehe)
 - 🌻 I'm currently trying to learn Java!
-- 🌼 Currently obsessed with gardening and bagels
 - 🪷 I love drawing, crocheting, sewing, and animating in my free time
 - 🌺 I love making websites and plan on making a game in the future(❁´◡`❁)
 
@@ -23,8 +22,6 @@ Thanks for checking out my GitHub^^
 
 ## 🐚 Funsies
 - **Currently playing:** Stardew Valley, LOZ, & Ace Attorney(. ❛ ᴗ ❛.)
-- **Spotify:** https://open.spotify.com/playlist/0up2q67lMQWny6AOn90B04?si=oixkd1skQzC3J8kGTsCvdw
-My go-to playlist to listen to when coding(still a work in progress)*: .｡. o(≧▽≦)o .｡.:*
 
 
 ⭐ Thanks for stopping by~ ૮꒰ ˶• ༝ •˶꒱ა ♡ 
